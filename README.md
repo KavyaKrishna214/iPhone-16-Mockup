@@ -1,5 +1,3 @@
-![image](https://github.com/user-attachments/assets/50e5fdcb-f81c-419e-8da0-d5d284158c5e)
-
 # iPhone 16 Mockups for Designers and Creatives  
 
 Welcome to the [iPhone 16 Mockups](https://www.mockupdaddy.com/download/iphone-16-mockup) repository! This is your one-stop resource for high-quality mockups that bring your designs to life.
@@ -35,14 +33,7 @@ Our iPhone 16 mockups are designed for:
 
 ![image](https://github.com/user-attachments/assets/2c498721-90de-4904-9af3-091c929f4385)
 
----
-
-## Get Started  
-
-Ready to take your projects to the next level?  
-👉 [Check Out iPhone 16 Mockups](https://www.mockupdaddy.com/download/iphone-16-mockup))  
-
-It’s as simple as downloading, customizing, and presenting your work like a pro.  
+--- 
 
 ![image](https://github.com/user-attachments/assets/0f4d0706-5a25-4386-81c8-b904519a2be4)
 
