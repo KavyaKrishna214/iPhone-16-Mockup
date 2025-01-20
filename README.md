@@ -2,7 +2,7 @@
 
 # iPhone 16 Mockups for Designers and Creatives  
 
-Welcome to the [iPhone 16 Mockups]((https://www.mockupdaddy.com/download/iphone-16-mockup) repository! This is your one-stop resource for high-quality mockups that bring your designs to life.
+Welcome to the [iPhone 16 Mockups](https://www.mockupdaddy.com/download/iphone-16-mockup) repository! This is your one-stop resource for high-quality mockups that bring your designs to life.
 
 Whether you're a graphic designer, app developer, or marketing professional, these mockups are perfect for showcasing your work with style and precision.  
 
